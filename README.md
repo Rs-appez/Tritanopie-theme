@@ -1,0 +1,1 @@
+Dofus theme for some sort of tritanopie
